@@ -1,1 +1,1 @@
-<img width="1270" height="760" alt="MBP promo 102 1270_760" src="https://github.com/user-attachments/assets/1f33f555-9327-4505-8998-2374e9418723" />
+<img width="2292" height="461" alt="MBP screen 102 150pr" src="https://github.com/user-attachments/assets/e222b067-c567-45eb-804f-ee0085d8f2ac" />
